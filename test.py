@@ -1,1 +1,0 @@
-#!-*sdas sa dsa sad sa d
